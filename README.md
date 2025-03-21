@@ -3,7 +3,7 @@
 
 🎶 Tôi làm nhạc để chill và viết code để stress cân bằng cuộc sống
 
-🤦‍ Tôi đang nhức đầu với code
+🤦‍ Tôi là lập trình viên AI/ML/DL
 
 🤘 Tôi có một ước mơ là có một bài nhac của riêng mình và biểu diễn nó trước mọi người.
 
