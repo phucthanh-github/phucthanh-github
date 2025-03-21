@@ -1,5 +1,5 @@
 # 💫About Me :
-👋 Hello, I'm Phúc Thành a.k.a Bluberries. I'm a code rapper
+👋 Hello, I'm Phúc Thành a.k.a Bluberries. I'm a AI Engineer 
 
 🎶 Tôi làm nhạc để chill và viết code để stress cân bằng cuộc sống
 
